@@ -30,7 +30,7 @@ Feel free to reach out or explore my work through the following platforms:
 | :--- | :--- |
 | **GitHub** | [View My Profile](https://github.com/jgarcea1) |
 | **Academic/Research (ORCID)** | [View My Research/Works](https://orcid.org/0009-0005-1532-4280) |
-| **YouTube** | [Visit My Channel](https://www.youtube.com/@GONZALEZ210-k1n) |
+| **YouTube** | [Visit My Channel](https://www.youtube.com/@DalishMort) |
 | **Email** | [jgarcea1@alumno.uned.es](mailto:jgarcea1@alumno.uned.es) |
 
 ---
